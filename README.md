@@ -1,1 +1,1 @@
-obsidian + 262537412640768744 + @ + gmail + . + com
+obsidian + 262,537,412,640,768,744 + @ + gmail + . + com
